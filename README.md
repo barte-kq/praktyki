@@ -1,2 +1,2 @@
 ## Moje dane
-Imię i Nazwisko - Bartosz Mirek
+Imię i Nazwisko - Bartosz Mirek 3e  
